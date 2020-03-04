@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## you probably shouldn't be here
 
 You can use the [editor on GitHub](https://github.com/sp00ter/sp00ter.github.io/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
 
