@@ -1,5 +1,5 @@
-## you probably shouldn't be here
+## lol why are you here 
 
-but thank you
+but thank you for checking out my work
 
 ### now download your stuff and get out
